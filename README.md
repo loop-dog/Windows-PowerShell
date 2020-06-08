@@ -1,7 +1,9 @@
 please note
 
 万が一、あなたに損害があっても、責任は取りません。あしからず。
+
 In the unlikely event that you suffer damage, we will not take responsibility. I'm sorry.
+
 
 
 
